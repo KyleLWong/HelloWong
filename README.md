@@ -1,4 +1,4 @@
 # HelloWong
-No it hasn't
+Ye it hasn'd
 
 :poop:
